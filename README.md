@@ -1,1 +1,1 @@
-Hello im Sean Or LordFarquaad112 i work games and shit thats really it
+Hello im Lord Or LordWyyn i work games and shit thats really it
